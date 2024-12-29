@@ -1,1 +1,1 @@
-im really smart 🔭🚀☄️
+im really smart, trust me
